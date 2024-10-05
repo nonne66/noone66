@@ -1,7 +1,7 @@
 # noone66
 Welcome to my GitHub profile!  
 
-My name is ccdad 
+a computer student 
 
 I like play computer game 
 
